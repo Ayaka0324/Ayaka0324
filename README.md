@@ -1,8 +1,6 @@
 # 川嶋のグラレコ
 
-https://scontent.ffsz1-1.fna.fbcdn.net/v/t1.0-9/105489807_293155305205366_5506420579719903900_o.jpg?_nc_cat=108&_nc_sid=825194&_nc_ohc=qQu_Y4vamkQAX-qzF8b&_nc_ht=scontent.ffsz1-1.fna&oh=5f410d3ca5356b6005da147ca39563ca&oe=5F3AE11A
 
-https://miro.medium.com/max/1400/1*UA2U_v2UpSDVFqdmc80_mA.jpeg
 
 ### Hi there 👋
 
