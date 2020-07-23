@@ -1,6 +1,6 @@
 # 川嶋のグラレコ
 
-
+![IMG_7650](https://user-images.githubusercontent.com/62421184/88265736-f9a51700-cd08-11ea-955a-0365e4174d5b.jpg)
 
 ### Hi there 👋
 
