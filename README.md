@@ -1,4 +1,4 @@
-川嶋のグラレコ
+#川嶋のグラレコ
 ![IMG_ゼミ議事録](https://user-images.githubusercontent.com/62421184/88265707-f01baf00-cd08-11ea-9803-43336e91f60d.JPG)
 ![IMG_7650](https://user-images.githubusercontent.com/62421184/88265736-f9a51700-cd08-11ea-955a-0365e4174d5b.jpg)
 
